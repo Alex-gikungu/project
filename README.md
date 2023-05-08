@@ -16,4 +16,5 @@
  # Authotrs information
  slack Profile-Alex-gikungu
  
- ![Mon_21_11_2022_14_30_28 jpg](https://user-images.githubusercontent.com/132661609/236702130-d48009ae-3d7d-4207-be4d-b6271764a4ed.png)
+![design](https://user-images.githubusercontent.com/132661609/236745611-26d78835-2757-48b9-8ff1-8884b9218297.jpeg)
+
